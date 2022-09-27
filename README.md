@@ -2,7 +2,7 @@
 
 
 
-I'm a Software Engineer, Content Creator, and I am currently studying at Altschool Africa.
+I'm Zinat, A Software Engineer and Content Creator. I am currently studying at Altschool Africa.
 
 **Here's a quick summary about me**:
 
